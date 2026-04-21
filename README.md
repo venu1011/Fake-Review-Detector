@@ -83,7 +83,7 @@ Contributions are welcome! Please feel free to submit a Pull Request.
 
 - Email: NXTGENMAVERICKS@gmail.com
 - Phone: +91 6305586671
-- Location: Tirupati, India
+- Location: Puttur, India
 
 ## 🔗 Social Links
 
